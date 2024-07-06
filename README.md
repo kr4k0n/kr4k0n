@@ -1,5 +1,5 @@
 # 1st in the world to conquer the entire planet
--> [OPWNgrid](https://opwngrid.xyz/leaderboard) ┌П┐(▀̿Ĺ̯▀̿)
+-> [OPWNgrid](https://opwngrid.xyz/leaderboard) ┌┐(▀̿Ĺ̯▀̿)
 
 ## Hi there, I'm kr4k0n 👋
 
